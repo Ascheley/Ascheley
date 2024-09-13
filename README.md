@@ -5,4 +5,4 @@ Aqui você encontrará meus projetos escolares, experimentos de programação e 
 
 
 
-![](https://tenor.com/pt-BR/view/rosy00-gif-807982188401805256)
+![](https://tenor.com/bYspz.gif)
